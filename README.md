@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SkullyWasHere
+- 👀 I Like Anime And Gaming
+- 📫 You Can Reach Me On Discord At SkullyWasHere#0001
